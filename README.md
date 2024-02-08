@@ -1,1 +1,1 @@
-## Interactive English Dictionary
+Interactive English Dictionary
